@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **everything threat detection related**
 
-- 📫 How to reach me **clindor0000@gmail.com**
+- 📫 You can email me @ **clindor0000@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
